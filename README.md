@@ -19,4 +19,8 @@ IT support at New Incentives for over 3 years, a  student of B. Sc Data Science 
 
 - I’m enjoying how I am currently learning Python at AREWA DATA SCIENCE ACADEMY
   
-📬 Let’s connect! **[LinkedIn]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/nazyr0943/))**
+📬 Let’s connect! 
+- **[LinkedIn](https://www.linkedin.com/in/nazyr0943/)**
+- **[Medium](https://medium.com/@nazeer0943)**
+
+                
